@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rali23
+- 👀 I’m interested in gaming, coding and watching youtube
+- 🌱 I’m currently learning python 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me - just give me a messege
